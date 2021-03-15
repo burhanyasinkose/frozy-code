@@ -1,0 +1,1 @@
+**okuma dedik aq nerenle dinlion**
